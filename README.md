@@ -1,1 +1,0 @@
-# StampScanner_Privacy
